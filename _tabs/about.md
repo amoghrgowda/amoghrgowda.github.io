@@ -25,7 +25,7 @@ Okay...enough yapping about me, find more out by reading through my blogs (after
 
 You need to keep a few things in mind~
 1. The blog will be kept pretty informal and messy (like a blog should be. I guess?).
-2. I'm not a native English speaker so let's not judge my grammar and all that, cool?
+2. I'm not a native English speaker so let's not judge my grammar and all twat, cool? (yes I delibretly made the mistke becus I want to anoy you. You grammer obsessed freak)
 3. This blog will contain mainly 3 categories as of now - programming, life and random.
     - 'Programming' will act as a documentary for everything new I learn about programming. It is supposed to help me keep track of what I've learned and how far I have come since I started blogging. Think of it as a progress check, if that helps you understand better.
     - 'Life' will be about me blogging about the new experiences such as traveling or when I decided to try something new or a new path that I decided to take in my life or just anything significant that happens in my life.
